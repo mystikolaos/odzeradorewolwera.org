@@ -1,4 +1,4 @@
-# OdZeraDoRewolwera.org
+# odzeradorewolwera.org
 
 My former blog about sport shooting and firearms law in Poland. I do not want to write it anymore, so the chances of further updates are thin. However, since I am still proud of it, I keep it online as it is.
 
